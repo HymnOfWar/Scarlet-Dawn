@@ -3,4 +3,4 @@
 
 本MOD目前处于内测状态
 ## 下载
-[立即下载《猩红黎明》测试版（Windows 64x）](download.renegades.online)
+[立即下载《猩红黎明》测试版（Windows 64x）](http://www.error422.site/)
